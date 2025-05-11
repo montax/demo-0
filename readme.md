@@ -1,1 +1,1 @@
-palle pelose
+palle pelos
